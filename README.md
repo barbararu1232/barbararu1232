@@ -8,4 +8,9 @@ Meu nome é Bárbara Rufatto
 
 ### Você pode entrar em contato comigo 📧
 
-barbara.rufatto
+barbara.rufatto@escola.pr.gov.br
+
+barbara.rufatto99@gmail.com
+
+
+![](https://media.tenor.com/_bsFPWDMF64AAAAC/nodding-crossed-arms.gif)
